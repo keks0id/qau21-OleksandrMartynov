@@ -1,1 +1,0 @@
-# qau21-OleksandrMartynov
